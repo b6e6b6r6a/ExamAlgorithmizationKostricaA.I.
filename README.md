@@ -1,1 +1,0 @@
-# ExamAlgorithmizationKostricaA.I.
